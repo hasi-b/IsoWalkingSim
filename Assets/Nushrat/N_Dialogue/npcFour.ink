@@ -1,0 +1,1 @@
+﻿Kaj korso to abar ki
